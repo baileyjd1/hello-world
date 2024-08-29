@@ -1,4 +1,4 @@
 # hello-world
-for a class
-I am a male human from earth.  I am not fond of human interaction.  This computer helps with that.
-I also love GITHUB!
+9 months...1 communication,
+9 months...1 communication,
+where is everyone?
